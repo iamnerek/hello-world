@@ -2,5 +2,5 @@
 
 Hi!
 
-I'm Keren! I'm new in coding. I'm a critical thinker and self motivated person.
+I'm Keren! I'm new to coding. I'm a critical thinker and self motivated person.
 
